@@ -88,8 +88,8 @@
 
 ## 🤝 Let's Connect
 
-- 💼 LinkedIn: www.linkedin.com/in/prince-chaudhary-4483b2176  
-- 📧 Email: pk422251@gmail.com  
+- 💼 LinkedIn: (https://www.linkedin.com/in/mayuri-sharma-576b13319)  
+- 📧 Email: mayuri7683@gmail.com  
 
 ---
 
